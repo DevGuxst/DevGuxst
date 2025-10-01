@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DevGuxst
-- 👀 I’m interested in all Malware
+- 👀 I’m interested in all Game desing
 - 🌱 I’m currently learning for all languages
 - 💞️ I’m looking to collaborate on NO ONE
 - 📫 How to reach me Try it if you can
